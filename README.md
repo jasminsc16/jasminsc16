@@ -5,7 +5,7 @@
 
 -->
 
-- 👯 I work with early-stage brands on competitive intelligence and positioning strategy, and I’m also interested in Strategy & Operations, GTM Analytics, and Competitive Intelligence roles. If you’re looking to sharpen your competitive positioning or have a role where I can put these skills to work, let’s connect.
-- 📫 How to reach me: [LinkedIn](https://www.linkedin.com/in/jasmin-cooper-a4a0941b7/) or email me: jasmin.s.cooper(@)gmail.com (remove parentheses, they are there to prevent spam 🤖.)
-- ⚡ Fun fact: I'm currently learning Spanish and aim to develop professional fluency to be able to work with a wider range of brands/individuals.
+- 👯 I help early-stage brands figure out their competitive position and GTM strategy. Also interested in Strategy & Ops and Competitive Intelligence roles
+- 📫 How to reach me: [LinkedIn](https://www.linkedin.com/in/jasmin-cooper-a4a0941b7/) or email me: jasmin.s.cooper[@]gmail.com (remove brackets, they are there to prevent spam bots from invading my inbox 🤖)
+- ⚡ Fun fact: Currently learning Spanish (because English-only feels limiting in 2025 🌎)
 
