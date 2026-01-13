@@ -5,7 +5,7 @@
 
 -->
 
-- 👯 I help early-stage brands figure out their competitive position and GTM strategy. Also interested in Strategy & Ops and Competitive Intelligence roles
+- 👯 Administrative assistant who loves making sure people are taken care of and taking on new challenges!
 - 📫 How to reach me: [LinkedIn](https://www.linkedin.com/in/jasmin-cooper-a4a0941b7/) or email me: jasmin.s.cooper[@]gmail.com (remove brackets, they are there to prevent spam bots from invading my inbox 🤖)
 - ⚡ Fun fact: Currently learning Spanish (because English-only feels limiting in 2025 🌎)
 
